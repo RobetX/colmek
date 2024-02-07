@@ -1,7 +1,4 @@
-# script free crack ig
-
-# git cline https://github.com/RobetX/colmek
-
-# ￼cd colmek
-
-# python col-ig.py
+# MLS UP SC KE GH D HUJAT TRUS ANH..PADAHAL FREE..
+# CUMAN PENGEN BAGI" AJ.
+# AD AJ YG IRI 
+# CARI SC D YG LAIN AJ
